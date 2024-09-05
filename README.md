@@ -14,6 +14,10 @@ amo ir para a praia
 
 gosto de fazer compras 
 
+para o meu futuro eu pretendo construir uma familia e seguir a area do direito ou da biomedicina 
+
 ##você pode entrar em contato comigo em aline.mafra@escola.pr.gov.br
 
 ![](https://media.tenor.com/aKFaZBrZFYcAAAAM/excited-spin.gif)
+
+![](https://media.tenor.com/MG2hy2hdseAAAAAj/kity.gif) 
